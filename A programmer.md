@@ -1,0 +1,6 @@
+- 👋 Hi, I'm not @XJikoX
+- 👋 I'm a Chinese
+- 👀 I am not interested
+- 🌱 I did not study
+- 💞️ I don't plan to cooperate
+- 📫 Can't contact me
